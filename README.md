@@ -1,4 +1,4 @@
-### Hola Amigo... 😕 hola amigo, pero que tonto.
+### Vida de programador pero alma de vaquero 🤠🐮
 
 <!--
 **RostCode78/RostCode78** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
